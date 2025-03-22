@@ -1,0 +1,1 @@
+VOOBSHE eto ctoit 999999999dolarov etot script slil @ice_cold1
